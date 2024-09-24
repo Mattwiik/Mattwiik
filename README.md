@@ -2,7 +2,7 @@
 - 👀 I’m interested in games, art, horror
 - 🌱 I’m currently learning to program
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me .. tetew.matthew92@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm colorblind but I draw :)
 
